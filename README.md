@@ -1,1 +1,0 @@
-# minsminskim3.github.io
